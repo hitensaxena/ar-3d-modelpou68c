@@ -1,1 +1,0 @@
-# ar-3d-modelpou68c
